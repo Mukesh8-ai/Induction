@@ -9,7 +9,7 @@ Her way of speaking was both impactful and approachable, setting a positive and 
 
 Tranumreet's presence added charm to the event, and her anchoring played a major role in making the session engaging and successful.
 
-Mrs.Harpreet kaur Grewal (HOD: Applied Science)
+# Mrs.Harpreet kaur Grewal (HOD: Applied Science)
 She has well communictaion skill she taught us about moral values and how to deal with people or students of different branches.
 
 
