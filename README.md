@@ -50,6 +50,65 @@ This was especially helpful for me as it cleared many of my doubts, particularly
 👨‍💻 GitHub Introduction by Seniors
 At the end of the program, our senior students introduced us to GitHub and guided us on how to document our experiences and learnings from the induction program.
 
-👁️ Conclusion
-Day 2 of the Induction Program was informative, inspiring, and full of learning experiences. It gave us valuable insights into scholarships, health, and
+Day 2 – 1st August 2025 (Friday)
+
+We had two important proficiency tests today to assess and improve our academic strengths:
+📝 English Proficiency Test – To help enhance our communication skills 📖🗣️
+🧠 Mathematics Proficiency Test – To test and boost our aptitude level ➕➗✖️
+Later, we gathered in the auditorium for an engaging lecture by:
+👨‍⚕️ Dr. Arshadeep Singh – "Food: A Pivotal Role in Student's Overall Weakness"
+
+He spoke about:
+The essential nutrients needed by our body 🍎🥦
+Common dietary mistakes students make in hostels
+Why a healthy mind needs a healthy body 💪🧠
+It was a knowledgeable session, reminding us how food directly affects academic performance and mental health.
+📅 Day 3 – 2nd August 2025 (Saturday)
+
+Today's focus was on campus infrastructure and digital learning tools.
+🧑‍🏫 We attended a session where we were introduced to:
+GNDEC’s Library Resources 📚
+T&P Cell (Training & Placement) details for future internships and placements 💼
+The importance of discipline and punctuality in engineering life
+💻 A special demo on:
+LMS (Learning Management System) – How to check notes, assignments, and lecture schedules online
+College Portal, where attendance, internal marks, and notices are updated
+The session helped us understand how to utilize digital tools for academic success. 🖥️✨
+📅 Day 4 – 3rd August 2025 (Sunday)
+
+It was a relaxed day yet highly inspiring. We had guest lectures by industry and academic experts.
+🎤 Key Sessions:
+
+Mr. Hardeep Singh (GNDEC Alumni, Entrepreneur)
+He shared his real-world journey from a student to a successful entrepreneur. His stories were relatable and encouraging — a perfect example of how GNDEC can shape careers. 🚀
+Dr. Inderjeet Kaur (Psychologist)
+She talked about:
+Coping with pressure & homesickness
+Mental health awareness among engineering students 🧠💬
+Importance of balancing studies with well-being
+📅 Day 5 – 4th August 2025 (Monday)
+
+Today we had interactive sessions focused on career building and personality development.
+👔 Session by a T&P Officer:
+Importance of internships and how to prepare for them
+Skill-building and certification platforms like NPTEL, Coursera
+🎤 Soft Skills Workshop:
+Group discussions, mock interviews, confidence-building activities 🗣️🤝
+Communication etiquette and time management
+This day truly helped us understand the roadmap from first year to placement and beyond. 💼🎯
+📅 Day 6 – 5th August 2025 (Tuesday)
+
+A vibrant and enjoyable day! 🌈
+🎭 Cultural Introduction:
+Presentations from Music, Dance, and Drama clubs 🎶🕺🎤
+Invitation to join college societies – technical and cultural
+📢 Student Experience Panel:
+Seniors shared their first-year struggles and how they overcame them
+Important do’s and don’ts as a fresher at GNDEC
+The day ended with light refreshments and an informal interaction where students got to bond. 🍪☕
+🙏 Conclusion
+
+The first six days at GNDEC were a blend of spirituality, academics, motivation, and fun. The orientation program gave us the confidence and clarity to begin our engineering journey with purpose. 🚀📘
+Let the journey begin! 🔧💡
+
 
